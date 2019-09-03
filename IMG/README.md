@@ -1,0 +1,1 @@
+https://www.google.com/url?sa=i&source=images&cd=&ved=2ahUKEwi0xZuslrXkAhX2JzQIHfW8C7EQjRx6BAgBEAQ&url=https%3A%2F%2Fwww.atlantamagazine.com%2Fdining-news%2Fwhere-to-get-soft-serve-ice-cream-in-atlanta%2F&psig=AOvVaw3RSlGQc1nECS5MogV1fvGG&ust=1567618013833500
